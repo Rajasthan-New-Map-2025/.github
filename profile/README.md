@@ -1,5 +1,5 @@
 # Rajasthan: Bhajanlal Government Abolishes 9 Districts and 3 Divisions, Releases New Map
-### [Rajasthan New Map 2025 View And Download]([https://www.rajasthan.gov.in/new-map-2025](https://rajasthanekhabar.in/rajasthan-new-map-2025-after-cancellation-of-9-districts-new-map-of-rajasthan-is-ready/))  
+# [Rajasthan New Map 2025 View And Download](https://rajasthanekhabar.in/rajasthan-new-map-2025-after-cancellation-of-9-districts-new-map-of-rajasthan-is-ready/)
 **Jaipur**: The Bhajanlal-led Rajasthan government has taken a historic administrative decision to abolish 9 districts and 3 divisions that were created during the Congress government’s tenure. This decision was made in recent days, resulting in a new administrative structure with 41 districts and 7 divisions in the state. Along with these changes, the government has also released a new map reflecting the updated structure.
 
 ## New Map: Rajasthan's Restructured Layout
@@ -17,8 +17,7 @@ The new map released by the government reorganizes the boundaries of all 41 dist
 7. **Sanchore**: Reintegrated into Jalore district.
 8. **Anupgarh**: Merged into Sri Ganganagar district.
 
-### [Rajasthan New Map 2025 View And Download]([https://www.rajasthan.gov.in/new-map-2025](https://rajasthanekhabar.in/rajasthan-new-map-2025-after-cancellation-of-9-districts-new-map-of-rajasthan-is-ready/)) 
-
+# [Rajasthan New Map 2025 View And Download](https://rajasthanekhabar.in/rajasthan-new-map-2025-after-cancellation-of-9-districts-new-map-of-rajasthan-is-ready/)
 ### Divisional-Level Changes
 
 The divisions of Pali, Sikar, and Banswara have been dissolved, with their regions distributed among neighboring divisions.
